@@ -11,7 +11,7 @@ paginate: 20
 baseurl: /
 domain_name: 'http://cinoss.me'
 google_analytics: 'UA-64517861-1'
-disqus_shortname: 'your-disqus-shortname'
+disqus_shortname: 'cinoss5'
 
 # Details for the RSS feed generator
 url:            'http://cinoss.me'
