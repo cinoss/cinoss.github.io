@@ -6,7 +6,7 @@ description:  Hôm trước, tự nhiên được đưa vào 1 quán bít tết.
 
 Hôm trước, tự nhiên được đưa vào 1 quán bít tết. Sau khi không ưng ý với tầng 1 thì mình với bạn tót ngay lên tầng 2. Tầng 2 của quán được chia làm 2 nửa. Mình chọn ngồi ở 1 cái bàn bên cạnh vách ngăn. Trên vách ngăn, có một ô trống. Ngồi xuống, nhìn xuyên qua ô trống, mình thây một  cái bàn áp vào tường nhìn thẳng ra cửa sổ. Khung cảnh trước mắt đó mang lại cho mình một sự kì thú và trong đầu mình chợt nảy lên 1 ý nghĩ. Định Mệnh.
 
-Viễn cảnh 1:
+## Viễn cảnh 1:
 Sau khi được bạn dẫn đến, cái quán bít tết ấy đã trở thành địa điểm yêu thích của mình. Đặc biệt là cái bàn bên vách. Chỉ cần ngước mắt lên nhìn qua ô trống thì mình đã thấy được người ngồi bàn bên kia rồi. Mình thì khá là thích quan sát người khác (thích soi :))) Chắc là từ hồi xem Sherlock Holme phì phèo tẩu thuốc cùng với bác sỹ Watson chỉ ngồi quan sát người qua đường, và phân tích từng chi tiết đã biết được xuất thân, nghề nghiệp… của người đó rồi, thì cái máu đó đã ngấm trong người mình cho đến tận bây giờ. Mà lúc đó thì cái ô trống nó đóng vai trò như một cái khung cho một bức ảnh siêu thực vô cùng sắc nét và sống động.
 
 ...
@@ -16,14 +16,14 @@ Bình thường thì chắc là mình cũng sẽ tiếp tục ngấu nghiến ch
 
 ...
 
-Và những gì diễn ra sau đó là định mệnh.
+Và những gì diễn ra sau đó là *định mệnh*.
 
 
 Thực ra, hôm đó nghĩ là nếu có cô gái nào xuất hiện thì mình sẽ thay trời hành đạo luôn. Cơ mà trưa đó là trong tuần, ăn hơi muộn nên khách cũng vắng. Đoạn có 1 cô gái đi lên. Trong đầu nghĩ “phải chăng là nàng”, thì hoá ra nàng đi vệ sinh ngay cạnh cầu thang xong rối xuống tầng 1 ăn tiếp…
 
 Sau khi kể cho bạn bè và nghe phản hồi, cũng tự thấy viễn cảnh này sẽ tiêu tốn khá là nhiều lần đến quán và kha khá thịt bò, mình chợt nghĩ đến một viễn cảnh khác.
 
-Viễn cảnh 2:
+## Viễn cảnh 2:
 Có một cô bé nọ khá hay ho. Ngay lần đầu gặp cô bé ấy, từ phong thái, cách ăn mặc, ánh mắt đến nụ cười đã làm cho mình rất ấn tượng. Mình thích cô bé này. Và sau nhiều lần đi cùng, lượn lờ quán xá, nhà thờ trà đá, chém gió tưng bừng thì mình cảng khẳng định thêm ấn tượng ban đầu của mình là chính xác. Cô bé này hay ho thật. Nghẹt nỗi, cô bé thì cứ tưng tửng, mình thì cũng chả phải dạn cho lắm. Dần dà tự thấy vô hình 2 đứa như bị đóng khung vào cái frienzone to đùng đáng sợ mà thiên hạ lâu nay vẫn khuyến cáo.
 
 Một buổi chiều nọ, 2 đứa đang dạo phố thì tình cò ngang qua cái quán bít tết ngày xưa. Bụng 2 đứa thì đang đói mà đạo thì còn dài, nên đành vào kiếm thực để vực nó lên. 
