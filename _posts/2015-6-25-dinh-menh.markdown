@@ -27,14 +27,18 @@ Sau khi kể cho bạn bè và nghe phản hồi, cũng tự thấy viễn cản
 Có một cô bé nọ khá hay ho. Ngay lần đầu gặp cô bé ấy, từ phong thái, cách ăn mặc, ánh mắt đến nụ cười đã làm cho mình rất ấn tượng. Mình thích cô bé này. Và sau nhiều lần đi cùng, lượn lờ quán xá, nhà thờ trà đá, chém gió tưng bừng thì mình cảng khẳng định thêm ấn tượng ban đầu của mình là chính xác. Cô bé này hay ho thật. Nghẹt nỗi, cô bé thì cứ tưng tửng, mình thì cũng chả phải dạn cho lắm. Dần dà tự thấy vô hình 2 đứa như bị đóng khung vào cái frienzone to đùng đáng sợ mà thiên hạ lâu nay vẫn khuyến cáo.
 
 Một buổi chiều nọ, 2 đứa đang dạo phố thì tình cò ngang qua cái quán bít tết ngày xưa. Bụng 2 đứa thì đang đói mà đạo thì còn dài, nên đành vào kiếm thực để vực nó lên. 
+
 Vào quán. Thấy cái bàn "định mệnh" ở tầng 2 vẫn còn trống thế là bảo cô bé ngồi xuống luôn. không phải nghĩ.
+
 - Em thấy chỗ ni nhìn đẹp không.
 - Dạ, cụng đc, nhìn giống phim hàn phết :D
+
 Thế là mình bắt đầu chỉ vào ô trống, và kể cho cô bé về cái tưởng tượng ngày xưa rằng mình dã chắc chắn là cô gái ngồi vào cái bàn kia sẽ là định mệnh của mình như thế nào, mình sẽ bắt chuyện như thế nào... Cô bé nghe rất hứng thú và cười rất tươi. Mình luôn thích nhìn cô bé cười. Được đà mình chém gió lia lịa. Một lúc sau thì thức ăn ra. Hai đĩa bít tết nhìn ngon đến ứa nước bọt. Cô bé tự nhiên dừng lại, suy nghĩ 1 điều gì đó, mỉm cười, đứng dậy và chạy phắt sang bàn bên kia ăn 1 mình. Phía mình thì chả hiều chuyện gì đang xảy, mắt chữ A mồm chữ O nhìn theo cô bé. 
 
 ...
 
 Mình khẽ chạm lên vai cô bé, cô bé ngước nhìn lên.
+
 - Chào em.
 - Dạ, chào anh. Có chuyện chi rứa anh?
 - Anh không hay bắt chuyện với người lạ nhưng mà ... em có tin vào định mệnh không?
