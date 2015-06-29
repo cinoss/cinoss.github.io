@@ -30,8 +30,8 @@ Một buổi chiều nọ, 2 đứa đang dạo phố thì tình cò ngang qua c
 
 Vào quán. Thấy cái bàn "định mệnh" ở tầng 2 vẫn còn trống thế là bảo cô bé ngồi xuống luôn. không phải nghĩ.
 
-- Em thấy chỗ ni nhìn đẹp không.
-- Dạ, cụng đc, nhìn giống phim hàn phết :D
+> - Em thấy chỗ ni nhìn đẹp không.
+> - Dạ, cụng đc, nhìn giống phim hàn phết :D
 
 Thế là mình bắt đầu chỉ vào ô trống, và kể cho cô bé về cái tưởng tượng ngày xưa rằng mình dã chắc chắn là cô gái ngồi vào cái bàn kia sẽ là định mệnh của mình như thế nào, mình sẽ bắt chuyện như thế nào... Cô bé nghe rất hứng thú và cười rất tươi. Mình luôn thích nhìn cô bé cười. Được đà mình chém gió lia lịa. Một lúc sau thì thức ăn ra. Hai đĩa bít tết nhìn ngon đến ứa nước bọt. Cô bé tự nhiên dừng lại, suy nghĩ 1 điều gì đó, mỉm cười, đứng dậy và chạy phắt sang bàn bên kia ăn 1 mình. Phía mình thì chả hiều chuyện gì đang xảy, mắt chữ A mồm chữ O nhìn theo cô bé. 
 
@@ -39,11 +39,12 @@ Thế là mình bắt đầu chỉ vào ô trống, và kể cho cô bé về c�
 
 Mình khẽ chạm lên vai cô bé, cô bé ngước nhìn lên.
 
-- Chào em.
-- Dạ, chào anh. Có chuyện chi rứa anh?
-- Anh không hay bắt chuyện với người lạ nhưng mà ... em có tin vào định mệnh không?
+> - Chào em.
+> - Dạ, chào anh. Có chuyện chi rứa anh?
+> - Anh không hay bắt chuyện với người lạ nhưng mà ... em có tin vào định mệnh không?
 
 ...
 
-P/S1: Viết thế này thôi chứ bạn nào được mình rủ đến ăn đừng có làm theo,  cẩn thận không là sẽ bị “Tự nhiên sang bên tê ngồi 1 chắc rứa, quay lại đi… đồ hâm” ngay đấy :D.
-P/S2 : bít-tết tiếng anh là beefsteak. Đọc là bip-sờ-tếch, chứ không phải là bip-sờ-tich. Nhớ điều này và cá cược với đúng người bạn có thể được một lần đi xem phim miễn phí.
+P/S 1: Viết thế này thôi chứ bạn nào được mình rủ đến ăn đừng có làm theo,  cẩn thận không là sẽ bị “Tự nhiên sang bên tê ngồi 1 chắc rứa, quay lại đi… đồ hâm” ngay đấy :D.
+
+P/S 2 : bít-tết tiếng anh là beefsteak. Đọc là bip-sờ-tếch, chứ không phải là bip-sờ-tich. Nhớ điều này và cá cược với đúng người bạn có thể được một lần đi xem phim miễn phí.
